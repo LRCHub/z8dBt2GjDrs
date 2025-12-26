@@ -1,0 +1,81 @@
+# ME:I – Cookie Party
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Cookie
+Party, party, ya
+Colorful 並べて cute?
+Icing の sugar, yes!
+美味しい瞬間に
+きゅるぎゅる heart (oh-oh)
+Hype up! Chocolate flavor
+Choose it 合うのは soda?
+シュワシュワな気分
+Three, two, one, say cheers!
+ついて来て baby
+太陽と blue の breeze
+甘いの好きでしょ?
+Come on, come on, come on, baby
+爪は立てるけど
+仲良くしたいの
+止まらない もう止まらない
+君と yummy, yummy, yum, yum, cookie
+手を繋ぎ dancing
+胸いっぱいに広がる
+Summer, summer party
+(You) happy (and me) 君となら always
+一緒に この夏を味わおう yum, yum
+Cookie 踊ろう 踊ろう
+Cookie, it's party time
+Taste it 君と過ごす 最初の summer
+Cookie, cookie, cookie (hey)
+Party, party, party (party)
+Cookie, cookie, cookie
+きらめく sugar rush
+ねぇ ねぇ カップはピンクでいい?
+Tune up 好きな音楽かけて
+Ah 魅力的 cookie, cookie
+アツく光る sweetie candy
+ねぇ 全部は甘くないみたい
+かみ砕いてパキッていたい
+そばに来て baby
+この歌の phrase
+君がいなきゃダメ
+Come on, come on, come on, baby
+初めて会ってから
+胸の鈴が鳴って
+止まらない もう止まらない
+君と yummy, yummy, yum, yum, cookie
+手を繋ぎ dancing
+胸いっぱいに広がる
+Summer, summer party
+(You) happy (and me) 君となら always
+一緒に この夏を味わおう yum, yum
+Cookie 踊ろう 踊ろう
+Cookie, it's party time
+Taste it 君と過ごす 最初の summer
+Cookie, cookie, cookie (hey)
+Party, party, party (party)
+Cookie, cookie, cookie
+きらめく sugar rush
+響くクラッカーで
+君もきらめく
+この夏は特別だ
+一生に一度の
+思い出じゃない
+ずっと続けようよ
+君と yummy, yummy, yum, yum, cookie (oh)
+手を繋ぎ dancing
+胸いっぱいに広がる
+Summer, summer party
+(You) happy (and me) 君となら always
+一緒に この夏を味わおう yum, yum
+Cookie 踊ろう 踊ろう
+Cookie, it's party time (oh)
+Taste it 君と過ごす 最初の summer
+Cookie, cookie, cookie (hey)
+Party, party, party (party)
+Cookie, cookie, cookie
+きらめく sugar rush
+```
